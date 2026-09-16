@@ -14,7 +14,7 @@ Are you a funded startup founder or an enterprise tech agency looking to save 40
 
 Unlock the absolute master class of dashboard engineering instantly:
 
-👉 [GET FULL COMMERCIAL ACCESS: APEXGRID ENTERPRISE & NIMBUS FINANCE SUITE](https://whop.com)
+👉 [GET FULL COMMERCIAL ACCESS: APEXGRID ENTERPRISE & NIMBUS FINANCE SUITE](https://whop.com/checkout/plan_H1SjFyBtnqRMm)
 
 ### What the Premium Complete Codebase Unlocks:
 * 📊 Full Enterprise Admin Suite Dashboard Layout ($250 One-Time License + $29.99/mo)
